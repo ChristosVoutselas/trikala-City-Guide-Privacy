@@ -1,0 +1,1 @@
+# trikala-City-Guide-Privacy
